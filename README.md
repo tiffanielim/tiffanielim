@@ -4,7 +4,7 @@
 🌱  Looking for a Summer 2025 internship. <br />
 📫  Reach me at: tiffanielim3147@gmail.com <br />
 😄  Pronouns: she/her <br />
-⚡  Fun fact: I've picked up tennis recently and would love to pick up a game! <br />
+⚡  Fun fact: I'm a huge foodie, and I love talking about your favorite restaurants! <br />
 <br />
 ✨  Check me out here! ✨ <br />
 
