@@ -7,6 +7,8 @@
 ⚡  Fun fact: I'm a huge foodie, and I love talking about different food spots. <br />
 🌮  My favorites right now are either Pasta e Pasta by Allegro (Japanese fusion pasta) or Avenue 26 Tacos, both in the LA Arts District!
 <br />
+
+<br />
 ✨  Check me out here! ✨ <br />
 
 LinkedIn: https://www.linkedin.com/in/tiffanie-lim/
