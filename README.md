@@ -11,4 +11,4 @@
 <br />
 ✨  Check me out here! ✨ <br />
 
-LinkedIn: https://www.linkedin.com/in/tiffanie-lim/
+LinkedIn: https://www.linkedin.com/in/tiffanielim/
