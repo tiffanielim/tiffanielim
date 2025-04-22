@@ -9,6 +9,11 @@
 <br />
 
 <br />
+✨  My food recs:  ✨ 
+<br />
+https://tiffanielim.github.io/favLAEats/
+
+<br />
 ✨  Check me out here! ✨ <br />
 
 LinkedIn: https://www.linkedin.com/in/tiffanielim/
