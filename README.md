@@ -14,6 +14,7 @@
 https://tiffanielim.github.io/favLAEats/
 
 <br />
+<br />
 ✨  Check me out here! ✨ <br />
 
 LinkedIn: https://www.linkedin.com/in/tiffanielim/
