@@ -1,6 +1,6 @@
 ## Hi there! I'm Tiffanie, welcome to my GitHub :)
 
-🔭  I'm currently at the Snap Academies, and transferring to USC this fall! <br />
+🔭  I'm currently at the Snap Academies, and transferring to USC this fall for Computer Science and Business Administration! <br />
 🌱  Looking for a Summer 2026 internship. <br />
 📫  Reach me at: tiffanielim3147@gmail.com <br />
 😄  Pronouns: she/her <br />
